@@ -1,2 +1,0 @@
-# Comprehensive-Academy
-School
